@@ -12,4 +12,4 @@ I'm an alumnus of [School of Electrical and Electronic Engineering](https://www.
 
 
 
-[Email](mailto:bangjieli@live.com) / [Github](https://github.com/McMaekawa) / [BiliBili]((https://space.bilibili.com/6421922?spm_id_from=333.1007.0.0))
+[Email](mailto:bangjieli@live.com) / [Github](https://github.com/McMaekawa) / [BiliBili](https://space.bilibili.com/6421922?spm_id_from=333.1007.0.0)
